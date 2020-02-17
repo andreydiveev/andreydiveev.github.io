@@ -1,1 +1,0 @@
-# andreydiveev.github.io
